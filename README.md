@@ -6,6 +6,6 @@
 -🌱 I’m currently learning lots! Working mostly with Python right now.  
 - 👯 I’m looking to collaborate on anything!  
 - 📫 How to reach me: https://www.linkedin.com/in/kat-sukkau or at katsukkau@gmail.com  
-- 😄 Pronouns: she/her/they/them  
+- 😄 Pronouns: they/them  
 - ⚡ Fun fact: I am also a tattoo artist and beekeeper!  
 
